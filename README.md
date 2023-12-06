@@ -134,5 +134,6 @@ Stocks, Investment, Crypto, Finance
 - Videos in Format other than English should be mentioned whether have English subtitles or not
 - Feel offended seeing a channel you dont like in this list? cope and move one. This is just an index nothing else.
 - If you feel any channel added in this index is spreading violence through his speech or action then report the channek directly in YouTube instead of creating "issue" here. Since we are adding political channels , activists etc some people may feel ofended or think the person is spreading violence while the other person may think he is telling the truth. We are no judge nor jury, we are just indexing and that's it.However channels spreading porn, gore and other violent stuff aren't allowed and you should immediately report us via creating an "issue".
+- Channel promoting illegal activity aren't allowed 
 
 # Contribution Format 
